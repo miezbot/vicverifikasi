@@ -1,0 +1,2 @@
+# vicverifikasi
+BOT VERIFIKASI VIC
